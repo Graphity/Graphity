@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-![lenna](https://github.com/Graphity/Graphity/blob/master/lenna.png)
+![lenna](https://media.giphy.com/media/3l5yJWhnbw5yyqDcQg/giphy.gif)
 <!--
 **Graphity/Graphity** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
