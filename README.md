@@ -1,1 +1,1 @@
-![Gandalf](https://tenor.com/b1W0Z.gif)
+![Gandalf](https://media1.tenor.com/m/1UgbfxIH5ywAAAAd/11.gif)
